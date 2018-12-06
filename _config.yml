@@ -3,7 +3,7 @@ description: Welcome to Dadhood, a site dedicated to lifting families, sharing i
 show_downloads: true
 
 baseurl: "/cayman-blog" # change this to the subpath of your site, e.g. /blog. Leave it empty if you don't need it.
-url: "https://lorepirri.github.io" # change this to the base hostname & protocol for your site
+url: "https://dsteed77.github.io" # change this to the base hostname & protocol for your site
 
 google_analytics:
 # cayman-blog date format
@@ -11,7 +11,7 @@ google_analytics:
 cayman-blog:
   date_format: "%b %-d, %Y"
 
-theme: jekyll-theme-cayman-blog # leave it empty
+theme: # leave it empty
 
 # social
 author: "David and Danielle Steed"
