@@ -8,4 +8,4 @@
 layout: home
 ---
 
-Dadhood is the personal blod of David Steed, a husband, father, and technology enthusiast who wants to share some good with the world! 
+Dadhood is the personal blog of David Steed, a husband, father, and technology enthusiast who wants to share some good with the world! 
