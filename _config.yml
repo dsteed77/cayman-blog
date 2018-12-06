@@ -2,7 +2,7 @@ title: Dadhood
 description: Welcome to Dadhood, a site dedicated to lifting families, sharing inspiration, and sharing insights from the perspective of new parents.
 show_downloads: true
 
-baseurl: "/cayman-blog" # change this to the subpath of your site, e.g. /blog. Leave it empty if you don't need it.
+baseurl: # change this to the subpath of your site, e.g. /blog. Leave it empty if you don't need it.
 url: "https://dsteed77.github.io" # change this to the base hostname & protocol for your site
 
 google_analytics:
@@ -17,11 +17,11 @@ theme: # leave it empty
 author: "David and Danielle Steed"
 image: /thumbnail-jumbo.png
 twitter:
-  username: dsteed77
+  username: 
 #  site:
 facebook:
-  #publisher: 1592372034171500
-  #profile_id: 1809805629
-  app_id: 1798910940422432 # cayman-blog
+  #publisher: 
+  #profile_id: 
+  app_id: 
   #authors: DavidSteed
 #  admins:
