@@ -3,7 +3,7 @@ layout: post
 title: "Fathers in the Scriptures"
 ---
 
-### [](#header-3)Scriptural Examples of Fatherhood.
+## [](#header-2)Scriptural Examples of Fatherhood
 
 As soon as I knew that I was going to be a father, I began seeking guidance and counsel from others concerning good fathering. It seemed that there were endless sources of varying opinions on everything ranging from how to get babies on a good sleep schedule (and making sure to take an equal share in the work!) to stimulating their physical and mental development. Countless ‘baby hacks’ videos and Google articles later, I found that I’d accumulated some good worldly knowledge concerning how to physically care for my son. 
 
@@ -17,7 +17,8 @@ The prodigal son’s father then restored him to full fellowship in his house, a
 
 #### [](#header-4)Joseph – Matthew 1:16-25
 A discussion of Christ-like fathers would not be complete without considering the example of the Savior’s earthly father Joseph. Rather than being indignant and seeking punishment for Mary when he found that she was “with child,” he was “not willing to make her a publick example, was minded to put her away privily…” (Matthew 1:19). He was described as a “just man,” and was worthy of receiving a vision from the Lord where he was told to “fear not to take unto thee Mary thy wife: for that which is conceived in her is of the Holy Ghost. And she shall bring forth a son, and thou shalt call his name JESUS: for he shall save his people from their sins” (Matthew 1:19-20). We all know that he acted in faith and trusted in God’s word, taking Mary to be his wife and provided both home and care for the boy Jesus as he grew into the Savior that we now look to as the source of all mankind’s salvation.
-Jesus Christ – The New Testament and Book of Mormon
+
+#### [](#header-4)Jesus Christ – The New Testament and Book of Mormon
 
 The Savior Himself, though no canonical record explicitly states he had children, is the paramount example of fatherhood. I have come to know Him as the Father of my Eternal Salvation and consider Him to be exactly the same in characteristics to our Heavenly Father. I love Him, and hope that my son can come to love and look to Christ as a pattern for his behavior and the source of his salvation.
 

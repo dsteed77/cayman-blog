@@ -2,7 +2,7 @@
 layout: post
 title: "Family Scripture Study"
 ---
-### [](#header-3)Family Scripture Study a Struggle? Here are Some Tips to Help.
+## [](#header-2)Family Scripture Study a Struggle? Here are Some Tips to Help.
 
 One truth I have come to believe in and trust is that “Time is our most precious resource”. It is always so interesting to me that God asks us to learn to be disciplined with our time when in reality we are preparing for eternity and earthly time as we know it is non-existent. So why would he ask us to learn about using our time wisely. Perhaps it’s because learning to use our time wisely shows a great deal about where our hearts are. What we spend our time doing overtly shows what we care about. 
 
