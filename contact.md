@@ -4,9 +4,6 @@ title: Contact
 tagline: Questions? Get in Touch.
 ---
 <style>
-body {font-family: Arial, Helvetica, sans-serif;}
-* {box-sizing: border-box;}
-
 input[type=text], select, textarea {
     width: 100%;
     padding: 12px;
