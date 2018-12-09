@@ -1,6 +1,8 @@
 ---
 layout: post
 title: "Love of Fathers, Love for Fathers"
+author: "David Steed"
+
 ---
 ## I'll Keep this one simple. 
 

@@ -1,6 +1,7 @@
 ---
 layout: post
 title: "Fathers in the Scriptures"
+author: "David Steed"
 ---
 
 ## [](#header-2)Scriptural Examples of Fatherhood
