@@ -2,12 +2,11 @@
 layout: post
 title: "Love of Fathers, Love for Fathers"
 ---
+## I'll Keep this one simple. 
 
 <div style="margin: 0 auto; text-align:center;" id='video'>
     <iframe height="400" width="700" src='https://players.brightcove.net/710874264001/default_default/index.html?videoId=4948389225001' allowfullscreen frameborder="0"></iframe>
 </div>
-
-## I'll Keep this one simple. 
 
 I saw this video today on [lds.org](https://www.lds.org/media-library/video/topics/fathers?lang=eng) and it made me tear up a little (yes, dads can [and should](https://www.babble.com/parenting/hey-dads-real-men-can-and-should-cry/) cry!). It made me think of just how much love I possess for my son Tanner and for the love that I hope he will share with me. 
 
