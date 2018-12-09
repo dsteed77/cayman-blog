@@ -7,16 +7,23 @@ author: "David Steed"
 
 Defining fatherhood - After studying the Book of Mormon and focusing on Christ-Centered Fatherhood, I've come to realize several very important things:
 
-### 1. Our greatest contribution to society will be the children we bring into this world.
+### 1. Our greatest contribution to society will be our influence on the children we bring into this world.
 
-I realize that I personally have no authority to say what people should and shouldn't do with their lives, but that's not my objective here. My goal is to share my belief that fathers have a greater potential to impact the rising generation of boys than any other group or individual.  in my life that I have to thank for much of my spiritual, physical, and social development. 
+I realize that I personally have no authority to say what people should and shouldn't do with their lives, but that's not my objective here. My goal is to share my belief that fathers have a greater potential to impact the rising generation of boys than any other demographic. My personal experience is that I have my own father to thank for much of my spiritual, physical, and social development. 
+
+According to [*The Family: A Proclamation To the World*](https://www.lds.org/topics/family-proclamation?lang=eng&old=true) "By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families." In this case it's clear that God requires fathers to be leaders in our household. Not the worldy type of leader that seeks dominion over others, but the type of leader that brings the best of each member forward.
+
+Through his provision of the necessities for a childs life, a father secures for himself greater confidence, prosperity, and joy. As is said in [D&C 75:28](https://www.lds.org/study/scriptures/dc-testament/dc/75.28?&lang=eng#28) "Every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor in the church." This extends the duty of fathers beyond our own family into developing others as well. 
+
+Fatherhood should not be a role that is not mutually exclusive, and isn't meant to be a role that reduces our capacity to help others but rather strengthens it! I have been very blessed by countless men who I called leaders in my church. We experienced many camping trips, youth activites, and spiritual experiences that have all blessed and shaped me into the person I am. 
+
 
 >"Each of us is responsible for the welfare and the growth and development of others. We do not live only unto ourselves. If we are to magnify our callings, we cannot live only unto ourselves. As we serve with diligence, as we teach with faith and testimony, as we lift and strengthen and build convictions of righteousness in those whose lives we touch, we magnify our priesthood" - President Gordon B. Hinckley, [*Magnify Your Calling*](https://www.lds.org/study/general-conference/1989/04/magnify-your-calling?lang=eng)
 
 ### 2. Fatherhood is (and always has been) under attack.
  
+In the Book of Mormon, 
 
-Sometimes women don't allow men to be the leaders that they need to be. 
 >"in many societies today men and boys get conflicting and demeaning signals about their roles and value in society." - Elder D. Todd Christofferson, [Brethren, We Have Work to Do](https://www.lds.org/study/general-conference/2012/10/brethren-we-have-work-to-do?lang=eng)
 
 
