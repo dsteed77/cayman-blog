@@ -2,10 +2,10 @@
 layout: post
 title: "Dadhood﻿—A Sacred Responsibility"
 ---
-## Why is Fatherhood a Priority, or Why Should it be? 
+## Why is Fatherhood be a Priority? 
 
 <div style="margin: 0 auto; text-align:center;" id='image'>
-    <img src="../assets/images/father-2770301_1920.jpg">
+    <img src="https://github.com/dsteed77/dsteed77.github.io/assets/images/father-2770301_1920.jpg">
 </div>
 
 I saw this video today on [lds.org](https://www.lds.org/media-library/video/topics/fathers?lang=eng) and it made me tear up a little (yes, dads can [and should](https://www.babble.com/parenting/hey-dads-real-men-can-and-should-cry/) cry!). It made me think of just how much love I possess for my son Tanner and for the love that I hope he will share with me. 
