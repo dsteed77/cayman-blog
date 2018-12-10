@@ -22,7 +22,11 @@ Fatherhood should not be a role that is not mutually exclusive, and isn't meant 
 
 ### 2. Fatherhood is (and always has been) under attack.
  
-In the Book of Mormon, 
+Jacob, one of the great prophets of the Book of Mormon, boldly addressed infidelity and pride amongst the men of his people, saying:
+
+>"Ye have broken the hearts of your tender wives, and lost the confidence of your children, because of your bad examples before them; and the sobbings of their hearts ascend up to God against you. And because of the strictness of the word of God, which cometh down against you,many hearts died, pierced with deep wounds." ([Jacob 2:35](https://www.lds.org/study/scriptures/bofm/jacob/2?lang=eng#35))
+
+He described the current state of their greatest enemies the Lamanitse as being "more righteous than you... [because] their husbands love their wives, and their wives love their husbands; and their husbands and their wives love their children; and their unbelief and their hatred towards you is because of the iniquity of their fathers..." [Jacob 3:7](https://www.lds.org/study/scriptures/bofm/jacob/3?lang=eng#7)
 
 >"in many societies today men and boys get conflicting and demeaning signals about their roles and value in society." - Elder D. Todd Christofferson, [Brethren, We Have Work to Do](https://www.lds.org/study/general-conference/2012/10/brethren-we-have-work-to-do?lang=eng)
 

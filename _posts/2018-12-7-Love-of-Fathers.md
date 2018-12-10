@@ -2,7 +2,6 @@
 layout: post
 title: "Love of Fathers, Love for Fathers"
 author: "David Steed"
-
 ---
 ## I'll Keep this one simple. 
 
@@ -29,7 +28,7 @@ I also played the embarrassing role of 'Santa's little helper' as my father arra
 
 Whether it was a natural disaster or just someone moving out their house, my dad was always the superman wanting to help. He was (and still is) a pretty strong person, but once he injured himself and required back surgery, he would always enlist my help. As a teenager I wasn't always appreciative of his abundantly sharing my video game time with people in need, but I am forever grateful that he magnified his fatherhood by supporting and encouraging me to serve. 
 
-I remember one experience that was particularly impactful﻿—[The Davis County windstorom of 2011](https://en.wikipedia.org/wiki/Davis_County_windstorm_of_December_2011) (Check it out it's a real thing!). On December 1st of my senior year of high school, there was a massive windstorm that affected thousands of people in and around my home city. Sheds, trampolines, pine trees, and rooftops were blown about or destroyed by a tempestuous windstorm that rocked our hometown. The community really pulled together to assess, clean up, and repair the damage that occured. 
+I remember one experience that was particularly impactful﻿—[The Davis County windstorm of 2011](https://en.wikipedia.org/wiki/Davis_County_windstorm_of_December_2011) (Check it out it's a real thing!). On December 1st of my senior year of high school, there was a massive windstorm that affected thousands of people in and around my home city. Sheds, trampolines, pine trees, and rooftops were blown about or destroyed by a tempestuous windstorm that rocked our hometown. The community really pulled together to assess, clean up, and repair the damage that occured. 
 
 It was during this time that my dad taught me the masterful skills of caring for and using a chainsaw, and boy did I have fun. We spent at least three days sawing, hauling, and chucking logs of all shapes and sizes to clean up our neighborhood. Like I mentioned, my dad had previously undergone a pretty significant back surgery, and had every excuse to 'let the younger guys do it,' but he was out there working just as hard (if not harder) than everyone else. I love my dad for his example of service.
 
@@ -49,7 +48,7 @@ It's needless to say that life comes with struggles. My struggles have typically
 
 There were times when I'd be struggling that an uplifting note or book would appear in my bag or my dad would simply come and try to talk with me about what I was going through. There were several occasions when my dad would give me [priesthood blessings](https://www.lds.org/study/general-conference/1987/04/priesthood-blessings?lang=eng) and most importantly express his deep love and confidence in me. These were some of the most impactful experiences of my life and continue to give me strength through my challenges to this day. 
 
-Ultimately, what I'm trying to say is that I love my dad. Like the children in this video, my dad taught me how to play, fish, ride a bike (a post for another time;)), and have faith in Jesus Christ. With them, I'd like to say "I love you dad!" I appreciate. Right? you more than you could know. 
+Ultimately, what I'm trying to say is that I love my dad. Like the children in this video, my dad taught me how to play, fish, ride a bike (a post for another time;)), and have faith in Jesus Christ. With them, I'd like to say "I love you dad!" I appreciate you more than you could know. 
 
 *This post wasn't meant to be so long, or get so personal, but maybe that's what dadhood is all about*
 
