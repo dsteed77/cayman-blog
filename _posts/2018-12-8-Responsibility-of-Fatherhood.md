@@ -15,8 +15,7 @@ According to [*The Family: A Proclamation To the World*](https://www.lds.org/top
 
 Through his provision of the necessities for a childs life, a father secures for himself greater confidence, prosperity, and joy. As is said in [D&C 75:28](https://www.lds.org/study/scriptures/dc-testament/dc/75.28?&lang=eng#28) "Every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor in the church." This extends the duty of fathers beyond our own family into developing others as well. 
 
-Fatherhood should not be a role that is not mutually exclusive, and isn't meant to be a role that reduces our capacity to help others but rather strengthens it! I have been very blessed by countless men who I called leaders in my church. We experienced many camping trips, youth activites, and spiritual experiences that have all blessed and shaped me into the person I am. 
-
+Fatherhood should not be a role that is not mutually exclusive, and isn't meant to be a role that reduces our capacity to help others but rather strengthens it! I have been very blessed by countless men who I called leaders in my church. We went on many camping trips, youth activites, and spiritual experiences that have all blessed and shaped me into the person I am. 
 
 >"Each of us is responsible for the welfare and the growth and development of others. We do not live only unto ourselves. If we are to magnify our callings, we cannot live only unto ourselves. As we serve with diligence, as we teach with faith and testimony, as we lift and strengthen and build convictions of righteousness in those whose lives we touch, we magnify our priesthood" - President Gordon B. Hinckley, [*Magnify Your Calling*](https://www.lds.org/study/general-conference/1989/04/magnify-your-calling?lang=eng)
 
@@ -26,10 +25,11 @@ Jacob, one of the great prophets of the Book of Mormon, boldly addressed infidel
 
 >"Ye have broken the hearts of your tender wives, and lost the confidence of your children, because of your bad examples before them; and the sobbings of their hearts ascend up to God against you. And because of the strictness of the word of God, which cometh down against you,many hearts died, pierced with deep wounds." ([Jacob 2:35](https://www.lds.org/study/scriptures/bofm/jacob/2?lang=eng#35))
 
-He described the current state of their greatest enemies the Lamanitse as being "more righteous than you... [because] their husbands love their wives, and their wives love their husbands; and their husbands and their wives love their children; and their unbelief and their hatred towards you is because of the iniquity of their fathers..." [Jacob 3:7](https://www.lds.org/study/scriptures/bofm/jacob/3?lang=eng#7)
+He described the current state of their greatest enemies the Lamanites as being "more righteous than you... [because] their husbands love their wives, and their wives love their husbands; and their husbands and their wives love their children; and their unbelief and their hatred towards you is because of the iniquity of their fathers..." [Jacob 3:7](https://www.lds.org/study/scriptures/bofm/jacob/3?lang=eng#7) From this we learn two important lessons. 1) Pure love is more important than outward displays of devotion and 2) that sometomes people who were raised in ignorace aren't necessarily as accountable as their parents are for it. 
+
+The Nephites were supposedly the people who were following God yet they were caught up in pride, wearing expensive clothing and degrading others with lower statuses than they. They didn't express the pure love that is characteristic of Christlike fathers and mothers, which is what ultimately led to the downfall of an entire civilization over 1000 years later.
 
 >"in many societies today men and boys get conflicting and demeaning signals about their roles and value in society." - Elder D. Todd Christofferson, [Brethren, We Have Work to Do](https://www.lds.org/study/general-conference/2012/10/brethren-we-have-work-to-do?lang=eng)
-
 
 
 <div style="margin: 0 auto; text-align:center;" id='image'>
