@@ -3,9 +3,7 @@ layout: post
 title: "Why Did I Write this Blog?"
 author: "David Steed"
 ---
-## Why Did I Write this Blog? 
-
-### A Study of Christ-Centered Fatherhood
+### A Study of Christ-Centered Fatherhood - and to Share Christ, and Share Fatherhood
 
 I’m grateful for the opportunity to have made Christ-centered fatherhood the focal point of my studies for my Book of Mormon class this fall semester. In order to make my studies more meaningful I used the pattern given by Brother Jepson in class. He taught us to: 
 1. Ask inspired questions
