@@ -50,5 +50,11 @@ There were times when I'd be struggling that an uplifting note or book would app
 
 Ultimately, what I'm trying to say is that I love my dad. Like the children in this video, my dad taught me how to play, fish, ride a bike (a post for another time;)), and have faith in Jesus Christ. With them, I'd like to say "I love you dad!" I appreciate you more than you could know. 
 
+I hope that I can be as good a father to my son as you are to me! 
+
+<div style="margin: 0 auto; text-align:center;" id='image'>
+    <img height="300px" width="5250px" src="/assets/images/Tanner_Laying_Down.jpg">
+</div>
+
 *This post wasn't meant to be so long, or get so personal, but maybe that's what dadhood is all about*
 
