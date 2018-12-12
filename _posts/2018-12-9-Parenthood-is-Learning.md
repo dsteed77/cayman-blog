@@ -5,6 +5,7 @@ author: "Danielle Steed"
 ---
 
 ## Parenthood should be spelled learning. 
+
 ### *Learning from our children*
 
 As a first time parent there are innumerable lessons to be learned. The list of “firsts” is long and the list of “have done this before” is short leaving lots of room for some great life lessons. The joys that accompany becoming a parent are unparalleled as it truly is one of life’s greatest journeys. I am grateful that I get to experience parenthood with a supportive spouse and that this beautiful complex journey is something we get to take on together. With all of these lesson to be learned it seems that experience becomes the great teacher but have you ever considered the fact that we have many, yes I repeat many lessons to learn from our children. Many great and important lessons can be lost on us if we erroneously believe that as parents we are the only teachers. This is simply not the case. These precious souls have much to teach us about life and living. Not so sure? Consider some wise council offered by Jean A. Stevens in her talk entitled Become as a Little Child. 

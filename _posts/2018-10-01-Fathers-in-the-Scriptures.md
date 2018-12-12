@@ -27,7 +27,7 @@ The Savior Himself, though no canonical record explicitly states he had children
 
 The first thing that the prophet Nephi mentions in the Book of Mormon: Another Testament of Jesus Christ, is the goodly nature of his parents. He mentions being “taught somewhat in all the learning of my father” (1 Nephi 1:1). We know his father as Lehi the prophet who had a vision in which the Lord commanded him to depart from his comfortable home in Jerusalem, which had fallen to wickedness. He faithfully obeyed and gave sacrifices to the Lord at nearly every step of their journey. Of Lehi’s example it was said: 
 
-"A father is a teacher. The Lord has commanded sons and daughters to honor their parents and to give heed to their counsel. The words that open that great volume of scripture, the Book of Mormon, ought to be our guide as fathers: “… having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.”  (1 Ne. 1:1)" (1973 October General Conference A. Theodore Tuttle, The Role of Fathers - https://www.lds.org/study/general-conference/1973/10/the-role-of-fathers?lang=eng)
+>"A father is a teacher. The Lord has commanded sons and daughters to honor their parents and to give heed to their counsel. The words that open that great volume of scripture, the Book of Mormon, ought to be our guide as fathers: “… having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.”  (1 Ne. 1:1)" (1973 October General Conference A. Theodore Tuttle, The Role of Fathers - https://www.lds.org/study/general-conference/1973/10/the-role-of-fathers?lang=eng)
 
 Truly Lehi was an exemplary father.
 
