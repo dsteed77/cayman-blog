@@ -53,7 +53,7 @@ Ultimately, what I'm trying to say is that I love my dad. Like the children in t
 I hope that I can be as good a father to my son as you are to me! 
 
 <div style="margin: 0 auto; text-align:center;" id='image'>
-    <img height="300px" width="525px" src="/assets/images/Tanner_Laying_Down.jpg">
+    <img height="250" width="400" src="/assets/images/Tanner_Laying_Down.jpg">
 </div>
 
 *This post wasn't meant to be so long, or get so personal, but maybe that's what dadhood is all about*
